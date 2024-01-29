@@ -1,1 +1,0 @@
-# anaida-gasparyan.github.io
